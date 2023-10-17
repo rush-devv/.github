@@ -12,4 +12,7 @@
 
 ### join our discord for more info
 
-[!](https://discord.gg/wH6k7sPVa2)
+[Discord 🫂🚀](https://discord.gg/wH6k7sPVa2)
+![prismify-rendemr](https://github.com/rush-devv/.github/assets/108740247/1e4b0ccb-9a33-437a-a6cf-08f35224f86a)
+
+
