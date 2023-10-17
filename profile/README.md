@@ -9,3 +9,7 @@
 👩‍💻 Useful resources - Discord for now.
 
 **Let's get building**
+
+### join our discord for more info
+
+[!](https://discord.gg/wH6k7sPVa2)
